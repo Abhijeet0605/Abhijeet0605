@@ -7,7 +7,7 @@
 
 - 💬 Ask me about **ML and Deep learning**
 
-- 📫 How to reach me **Abhijeetmoghe02**
+- 📫 How to reach me **Abhijeetmoghe02gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
